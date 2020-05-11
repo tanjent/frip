@@ -1,0 +1,1 @@
+# Frip's Journal
